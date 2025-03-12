@@ -1,2 +1,3 @@
 # recetin
-Listado de Recetas de cocina
+Listado de Recetas de cocina.
+
