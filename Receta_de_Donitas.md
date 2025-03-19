@@ -43,3 +43,14 @@ Truco: puedes utilizar tanto un molde especial para cortar las donas caseras com
 Truco: si las haces fritas, utiliza una olla o cazo en lugar de una sartén porque las donas caseras necesitan flotar y no tocar el fondo.
 
 8. Si lo deseas, puedes decorar tus donas con frosting de fresa, ganaché de chocolate o glaseado blanco para donas. Otra opción totalmente válida y mucho más sencilla es espolvorear un poco de azúcar glas, consulta nuestra receta para elaborar el tuyo propio.
+
+    2 kilogramo de harina de trigo 0000 o común (16 tazas)
+    520 gramos de azúcar (1 taza)
+    80 gramos de levadura fresca (4 cucharaditas)
+    160 gramos de mantequilla
+    8 huevos
+    2 cucharadita de vainilla
+    400 mililitros de leche tibia
+
+
+
